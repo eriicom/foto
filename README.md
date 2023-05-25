@@ -1,1 +1,2 @@
-![20230525_120607873_iOS](https://github.com/eriicom/foto/assets/99477272/b739313e-c372-4d96-849c-4623cdeac042)
+
+![fotoretina](https://github.com/eriicom/foto/assets/99477272/ebbb2d4a-e5b8-45e1-9b61-38129c7c2800)
